@@ -1,7 +1,7 @@
-# JANGAN LUPA FOLLOW
+# JANGAN LUPA DI FOLLOW AKUN GITHUB INI . . .
+# GAK FOLLOW BAKALAN GK WORK SCRIPNYA . . .
 
 
-## HALLO
 * Note! Bila akunya cp simpan saja 1/5 hari nanti kebuka sendiri..
 
 # Turtorial cara dapatkan cokies fb
