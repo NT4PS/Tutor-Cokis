@@ -1,7 +1,7 @@
-# Tutor-Cokis
+# JANGAN LUPA FOLLOW
 
 
-## Screenshot
+## HALLO
 * Note! Bila akunya cp simpan saja 1/5 hari nanti kebuka sendiri..
 
 # Turtorial cara dapatkan cokies fb
